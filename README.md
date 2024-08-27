@@ -1,8 +1,7 @@
 # -Climate-Action-
 
-[1. What Climate Change Will Look Like on Earth | 360 | VR
-]([url](https://youtu.be/WXAHh3pe84k?si=uOj-bpJd7lX_Kpy_)
-)2. Climate Changers Trailer (360 Video)
+1. What Climate Change Will Look Like on Earth | 360 | VR 
+2. Climate Changers Trailer (360 Video)
 3. Virtual Reality/360 video: Meet your carbon footprint
 4. A 360 Virtual Reality Film Exploring Climate Change Across the World | Honoring the Future
 5. See Iceland in Virtual Reality | NYT - 52 Places to Go

@@ -1,4 +1,5 @@
-# -Climate-Action- 🌱 🌏 
+# -Climate-Action- 
+🌱 Take action on the climate crisis 🌏 
 
 1. What Climate Change Will Look Like on Earth | 360 | VR 
 2. Climate Changers Trailer (360 Video)
